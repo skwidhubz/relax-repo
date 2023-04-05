@@ -1,2 +1,3 @@
-# relax-repo
-We gon be alryte.
+# Relax :heart:
+
+Everythings going to be fine :heart_hands:
